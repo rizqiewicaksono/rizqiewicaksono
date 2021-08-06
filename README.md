@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rizqiewicaksono
-- 👀 I’m interested in ui/ux designer/researcher and website developmet
+- 👀 I’m interested in ui/ux designer/researcher and website development
 - 🌱 I’m currently learning at Informatic Islam Indonesia University 
 - 📫 How to reach me you can directly email me on rizqiwaskito@gmail.com
 
